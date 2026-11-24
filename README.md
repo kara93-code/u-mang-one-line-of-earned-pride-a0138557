@@ -1,5 +1,8 @@
 # One Line of Earned Pride
 
+[![make.fun](https://make.fun/bounty/u-mang-one-line-of-earned-pride-a0138557/badge)](https://make.fun/bounty/u-mang-one-line-of-earned-pride-a0138557)
+[![Entry](https://make.fun/bounty/u-mang-one-line-of-earned-pride-a0138557/entry)](https://make.fun/bounty/u-mang-one-line-of-earned-pride-a0138557)
+
 For seven years she taught herself to read by lamplight after the
 children slept, and tonight her grandson fell asleep to her voice
 reading his bedtime story, every word landing where it belonged.
